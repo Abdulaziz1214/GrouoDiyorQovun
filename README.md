@@ -1,0 +1,2 @@
+# GrouoDiyorQovun
+Gim otirlarin
